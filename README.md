@@ -1,9 +1,9 @@
 # به صفحه One Click خوش آمدید 👋 
 
-## [👈 جهت ورود اینجا رو کلیک کنید 👉](https://god.onelivepc.com)
+## [👈 جهت ورود روی این قسمت کلیک کنید 👉](https://god.onelivepc.com)
 
 
-### [👈 جهت ثبت نام اینجا رو کلیک کنید و مراحل زیر را دنبال کنید 👉](https://god.onelivepc.com/register?aff=TcVmxbIjz8)
+### [👈 جهت ثبت نام روی این قسمت کلیک کنید و مراحل زیر را دنبال کنید 👉](https://god.onelivepc.com/register?aff=TcVmxbIjz8)
 
 ✅️پنج مرحله ساخت اکانت را دنبال کنید:
 
