@@ -1,4 +1,14 @@
 # One Click
-![](https://raw.githubusercontent.com/0nec1ick/register/main/Login.png)
-## [جهت ورود اینجا رو کلیک کنید](https://god.onelivepc.com)
-### [جهت ثبت نام اینجا رو کلیک کنید](https://god.onelivepc.com/register?aff=TcVmxbIjz8)
+## به صفحه ورود وان کلیک خوش آمدید 👋 
+### [👈 جهت ورود اینجا رو کلیک کنید 👉](https://god.onelivepc.com)
+
+####✅️پنج مرحله ساخت اکانت را دنبال کنید:
+#####1️⃣ نام کاربری با حروف انگلیسی
+######2️⃣ ایمیل ترجیحا صحیح
+#######3️⃣ رمز عبور بیشتر از ۷ کاراکتر
+########4️⃣ تیک قبول قوانین
+#########5️⃣ ثبت نام
+
+
+########## برای ثبت نام 
+########### [👈 جهت ثبت نام اینجا رو کلیک کنید 👉](https://god.onelivepc.com/register?aff=TcVmxbIjz8)
